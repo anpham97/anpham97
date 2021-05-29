@@ -1,97 +1,58 @@
-# Sâm cau đen có tác dụng gì
-Sâm cau đen (tiên mao) vị thuốc nam điều trị liệt dương nổi tiếng được dân gian ca ngợi, sử dụng cách đây hàng trăm năm. Các cuốn sách cổ đều có ghi chép về công dụng của tiên mao. Tuy nhiên rất ít người biết và sử dụng. Ở bài viết này xin giới thiệu tới quý vị và các bạn về công dụng, cách dùng sâm cau đen.
+# Một số tác dụng của trà hoa đậu biếc mang lại cho cơ thể
+Trà hoa đậu biếc được làm từ hoa đậu biếc, gây sốt trên khắp thế giới vì khi pha trà có màu sắc đẹp và thanh nhã. Trà hoa đậu biếc có hương vị thơm ngon, đồng thời lại mang đến nhiều tác dụng tốt đối với sức khỏe. Các tác dụng của trà hoa đậu biếc thường là giúp giảm căng thẳng, lo âu, giúp các vấn đề về giấc ngủ, giúp ngủ ngon và sâu hơn. Ngoài ra, còn rất nhiều tác dụng khác. Chúng ta hãy cùng tìm hiểu thêm trong bài viết dưới đây.
+![Hoa đậu biếc](https://global-uploads.webflow.com/5deb1e0bcd1730303a919a1b/5e74441440f35f44ce52c3e6_hoa-dau-biec-kho.jpg)
 
-Sâm cau đen - tiên mao còn có tên gọi khác là tiên mao, ngải cau, sâm cau rừng…. Đây là một trong số rất ít những vị thuốc nam có công dụng bồi bổ sức khỏe, tăng cường sinh lý, điều trị liệt dương được ghi nhận trong cuốn sách nổi tiếng toàn thế giới – Cuốn “Những cây thuốc, vị thuốc Việt Nam” của giáo sư, Tiến sỹ Đỗ Tất Lợi.
+## Hoa đậu biếc là gì?
 
-"Sâm cau đen tươi - sâm tiên mao"
-Tên khoa học
-Curculigo orchioides Gaertn. Thuộc họ thủy tiên
+Hoa đậu biếc là một loài hoa rất đẹp và thường rất nổi bật với sắc tím xanh của mình. Nhiều người trồng hoa đậu biếc trong nhà để tăng thêm màu sắc cho căn nhà của mình. Hoa đậu biếc ngoài việc được sử dụng để trang trí thì người ta còn dùng nó cho nhiều việc khác, đặc biệt là trong nấu ăn và chế biến thức uống.
 
-## Khu vực phân bố
-Cây sâm cau đen mọc hoang hóa ở các vùng đồi núi nước ta. Hiện mới phát hiện sâm cau đen mọc ở một số tỉnh Tây Bắc như: Hòa Bình, Sơn La, Ninh Bình, Yên Bái, Lào Cai, Tuyên Quang.
+Trong nấu ăn thì hoa đậu biếc thường được chế biến để làm thành những món xôi có màu sắc xanh vừa đẹp vừa ngon miệng. Còn trong thức uống thì trong các công thức pha chế, thì hoa đậu biếc thường được thêm vào để tạo màu sắc cho món thức uống đó được hấp dẫn hơn.
 
-Chưa thấy cây mọc ở đồng bằng, hiện nay cây sâm cau vẫn chưa được trồng đại trà. Toàn bộ nguồn nguyên liệu đều dựa vào việc khai thái ngoài thiên nhiên.
+Dạo gần đây, người ta đã phát hiện thêm một cách chế biến hoa đậu biếc khác đó là trà hoa đậu biếc, ngoài là một thức uống thanh tao thì nó còn mang nhiều công dụng tốt.
 
-## Bộ phận dùng
-Củ sâm cau chính là bộ phận được dùng làm thuốc.
+## Trà hoa đậu biếc có tác dụng gì?
+### 1. Trà hoa đậu biếc ngừa bệnh tiểu đường
+tra hoa dau biec tac dung chong tieu duong
 
-## Cách chế biến và thu hái
-Là loài cây cỏ mọc lâu năm, người dân thu hái củ sâm cau quanh năm. Nhiều nhất vào thời gian từ tháng 9 đến tháng 12 hàng năm, đây là thời điểm củ sâm cau có chất lượng tốt nhất.
+Các chất chiết xuất có trà hoa đậu biếc có khả năng làm giảm đáng kể lượng đường glucose trong máu và góp phần vào việc ngừa bệnh tiểu đường. Tác dụng của hoa đậu biếc được các nhà khoa học cho biết là tương đương glibenclamide. Đây là loại thuốc phổ biến được dùng để kiểm soát đường huyết cao.
 
-Thành phần hóa học
-Trong củ có rất nhiều hoạt chất quý như: Hoạt chất Saponin, phytosterol, phenolic glycosid, lignan và rất nhiều axit amin.
+### 2. Tác dụng của trà hoa đậu biếc giúp chống lão hoá
+Trong trà hoa đậu biếc cũng có một số chất có khả năng làm giảm hoạt động của gốc tự do. Gốc tự do là một trong những nguyên nhân dẫn đến tình trạng lão hoá nhanh ở người.Vì thế, thường xuyên uống trà hoa đậu biếc sẽ giúp ngăn ngừa và chậm tốc độ lão hóa của cơ thể, đặc biệt là phụ nữ.
 
-"Cây sâm cau đen tươi - sâm tiên mao"
-Tính vị
-Sâm cau đen có vị hơi cay, tính ấm. Vào 2 kinh tỳ, thận.
+### 3. Trà hoa đậu biếc giúp giảm stress
+tac dung cua tra hoa dau biec giam stress
 
-## Công dụng điều trị bệnh của sâm cau đen
-Theo y học cổ truyền sâm cau đen có một số tác dụng chính sau:
+Trà hoa đậu biếc có màu sắc bắt mắt, cùng với những dưỡng chất tốt cho cơ thể. Việc uống một ly trà đậu biếc mỗi ngày sẽ rất tốt cho những người đang có chứng trầm cảm, lo lắng, bồn chồn và các triệu chứng về hành vi khác.
 
-Điều trị liệt dương
+### 4. Tác dụng của trà hoa đậu biếc giúp ngừa máu nhiễm mỡ
+Nhiều nhà khoa học đã dùng nhiều nghiên cứu để có thể chúng minh rằng trong hoa đậu biếc có tác dụng trị bệnh máu nhiễm mỡ. Và họ đã cho biết rằng, những người bị máu nhiễm mỡ có thể sử dụng trà hoa đậu biếc để làm giảm lượng mỡ trong máu khá hiệu quả.
 
-Điều trị yếu sinh lý
+### 5. Trà hoa đậu biếc giúp giảm sốt
+hoa dau biec co tac dung giup giam sot
 
-Điều trị xuất tinh sớm
+Khi bị sốt, chúng ta thường sử dụng các loại thuốc kháng sinh để giúp hạ sốt, nhưng nó cũng có những tác hại không nhỏ đối với cơ thể. Bạn có thể sử dụng trà hoa đậu biếc như một ly sủi hạ sốt, tác dụng hạ sốt của hoa đậu biếc có thể kéo dài lên đến 5 tiếng.
+![Trà hoa đậu biếc](https://global-uploads.webflow.com/5deb1e0bcd1730303a919a1b/5e74448621d9499951079653_tra-hoa-dau-biec.jpg)
 
-Điều trị chứng thận dương hư
+### 6. Trà hoa đậu biếc giúp giảm rụng tóc
+cong dung cua tra hoa dau biec giam rung toc
 
-Bồi bổ cơ thể, tăng cường miễn dịch
+Ở Thái Lan, trà hoa đậu biếc thường được dùng để trị bệnh hói đầu sớm cũng như bạc tóc sớm ở nam giới. Khả năng này là nhờ chất Anthocyanin có trong hoa, thành phần giúp tạo màu tím của hoa đậu biếc. Anthocyanin được cho là giúp tăng cường tuần hoàn máu ở vùng đầu và làm khỏe chân tóc. 
 
-Mạnh gân xương
+### 7. Trà hoa đậu biếc tăng cường miễn dịch
+Màu xanh của hoa đậu biếc có hoạt chất anthocyanin giúp bảo vệ DNA và lipid peroxidation khỏi tổn thương và tăng sản xuất cytokine để tăng miễn dịch cho cơ thể.
 
-Điều trị thần kinh suy nhược
+## Cách làm trà hoa đậu biếc
 
-## Đối tượng sử dụng
-Người mắc chứng thận dương hư (Lưng đau, gối mỏi, lưng bị lạnh, suy nhược cơ thể, gầy xanh xao)
 
-Nam giới bị suy giảm chức năng sinh lý
+Người ta thường sử dụng hoa đậu biếc khô để pha trà thay vì hoa đậu biếc tươi. Bởi vì hoa tươi thường rất khó kiếm và khó bảo quản, còn hoa khô thì dễ bảo quản và sử dụng được lâu hơn.
 
-Người sức khoẻ yếu, nhanh mệt
+Nếu bạn không muốn mua hoa đậu biếc khô trên thị trường thì bạn có thể làm trà hoa đậu biếc khô tại nhà.
+Xem thêm: [Tác hại của hoa đậu biếc](https://caythuocnam.webflow.io/posts/tac-dung-va-tac-hai-cua-hoa-dau-biec)
 
-Nam giới tuổi trung niên, suy giảm nội tiết tố, mãn dục nam
+Cách pha trà:
 
-Người bình thường không bệnh tật gì nên sử dụng sâm cau để tăng cường sức khỏe, tăng khả năng yêu, tăng bản lĩnh trước chị em
-
-## Cách dùng, liều dùng
-Sâm cau đen có thể dùng theo 2 cách là ngâm rượu hoặc sắc nước uống. Cách dùng cụ thể như sau:
-
-Cách ngâm rượu sâm cau đen tươi:
-Chuẩn bị: 1kg sâm cau đen tươi, 3 lít rượu 45 độ, 1 bình thủy tinh hoặc sành sứ loại miệng lớn.
-
-*Cách ngâm*: Củ sâm cau ta để nguyên củ cho đẹp, rửa sạch thật sạch (đặc biệt là các kẽ rễ), để dáo nước, tráng qua rượu 1 lần sau đó bỏ vào bình ngâm. Đổ ngập rượu, đậy nắp bình rồi ngâm trong thời gian 1 tháng trở lên là dùng được.
-
-*Cách dùng*: Dùng trong mỗi bữa ăn, mỗi bữa uống 2 – 3 ly nhỏ.
-
-Cách sắc uống
-Nếu không dùng được rượu bạn áp dụng cách sắc uống như sau:
-
-Có thể dùng tươi hoặc khô.
-
-Tỷ lệ: Sâm tươi 20g (khô 10g thái mỏng) đun với 500ml nước, đun cạn còn 300ml chia 2 lần uống trong ngày.
-
-Sâm cau đen đang là sản phẩm Hot được nhiều anh em tin dùng bởi hiệu quả tuyệt vời của vị thuốc này. Công dụng của sâm cau đen đã được y học cổ truyền công nhận, điều đó chứng tỏ những kết quả của nền y học cổ truyền nước ta vẫn nguyên giá trị.
-
-Mua sâm cau đen ở đâu, địa chỉ bán tiên mao ?
-Sâm cau đen hiện có trữ lượng khá dồi dào tại Hà Giang, hiện nay chúng tôi đang tiến hành thu mua của người dân vùng cao ở dạng củ tươi nguyên củ. Sản phẩm sạch, có chất lượng rất tốt. Dưới đây là một số thông tin về vị thuốc:
-
-Giá sâm tươi 150.000đ/kg
-
-Giá sâm khô 400.000đ/kg
-
-Xuất xứ: Hà Giang
-
-Tình trạng: Thu hoàn toàn từ rừng tự nhiên
-
-Quy cách đóng gói: Túi nilon 1kg
-
-Hình thức bảo quản: Nguyên củ khô hoặc thái lát
-
-Có gửi hàng trên toàn quốc
-
-Ngoài vị sâm cau đen ta còn vị sâm cau đỏ cũng có cùng chung 1 tác dụng. Các bạn có thể tham khảo thêm thông tin về sâm cau đỏ tại đây.
-
-Nếu thấy bài viết hữu ích, hãy chia sẻ cho bạn bè người thân của các bạn bằng cách nhấp vào biểu tượng Facebook ở phía dưới bạn nhé.
-
-Nếu thấy bài viết trên có ích, các bạn hãy chia sẻ trên Facebook cho người thân và bạn bè mình biết nhé. Cảm ơn bạn!
-Mua hàng: 0926456456
+Hái hoa đậu biếc tươi vừa nở, có màu sắc tươi, rải đều trên một mâm sạch và phơi ngoài nắng từ 1 – 2 ngày.
+Tuy nhiên, nếu bạn sử dụng phương pháp phơi nắng thì hoa rất dễ bị nhạt màu. Vì thế, đa số trà hoa đậu biếc trên thị trường đều được dùng phương pháp sấy khô để lưu giữ được màu sắc và các tinh chất của hoa.
+Bạn có thể dùng lò vi sóng để sấy khô hoa đậu biếc. Sau đó chỉ cần bỏ vào túi chống ẩm để dùng dần là được.
+Kết lại
+Trà hoa đậu biếc có nhiều công dụng tốt cho sức khỏe, mỗi ngày một tách trà hoa đậu biếc sẽ giúp bạn giảm hẳn sự mệt mỏi, áp lực của cuộc sống. Chỉ cần dùng 5 phút mỗi ngày là bạn đã giúp cơ thể khỏe mạnh hơn. Nếu bạn không có quá nhiều thời gian để làm trà hoa đậu biếc tại nhà thì hãy đến với caythuocnam.webflow.io hoặc gọi vào số 0926.456.456 để biết thêm thông tin về trà hoa đậu biếc của shop, đây là cửa hàng uy tín và chất lượng.
