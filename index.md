@@ -56,5 +56,11 @@ Xem thêm: [Tác hại của hoa đậu biếc](https://caythuocnam.webflow.io/p
 Hái hoa đậu biếc tươi vừa nở, có màu sắc tươi, rải đều trên một mâm sạch và phơi ngoài nắng từ 1 – 2 ngày.
 Tuy nhiên, nếu bạn sử dụng phương pháp phơi nắng thì hoa rất dễ bị nhạt màu. Vì thế, đa số trà hoa đậu biếc trên thị trường đều được dùng phương pháp sấy khô để lưu giữ được màu sắc và các tinh chất của hoa.
 Bạn có thể dùng lò vi sóng để sấy khô hoa đậu biếc. Sau đó chỉ cần bỏ vào túi chống ẩm để dùng dần là được.
+
 Kết lại
-Trà hoa đậu biếc có nhiều công dụng tốt cho sức khỏe, mỗi ngày một tách trà hoa đậu biếc sẽ giúp bạn giảm hẳn sự mệt mỏi, áp lực của cuộc sống. Chỉ cần dùng 5 phút mỗi ngày là bạn đã giúp cơ thể khỏe mạnh hơn. Nếu bạn không có quá nhiều thời gian để làm trà hoa đậu biếc tại nhà thì hãy đến với caythuocnam.webflow.io hoặc gọi vào số 0926.456.456 để biết thêm thông tin về trà hoa đậu biếc của shop, đây là cửa hàng uy tín và chất lượng.
+
+Trà hoa đậu biếc có nhiều công dụng tốt cho sức khỏe, mỗi ngày một tách trà hoa đậu biếc sẽ giúp bạn giảm hẳn sự mệt mỏi, áp lực của cuộc sống. Chỉ cần dùng 5 phút mỗi ngày là bạn đã giúp cơ thể khỏe mạnh hơn. 
+
+Nếu bạn không có quá nhiều thời gian để làm trà hoa đậu biếc tại nhà thì hãy đến với caythuocnam.webflow.io hoặc gọi vào số 0926.456.456 để biết thêm thông tin về trà hoa đậu biếc của shop, đây là cửa hàng uy tín và chất lượng.
+
+Nguồn tham khảo: [https://caythuocnam.webflow.io/](https://caythuocnam.webflow.io/)
