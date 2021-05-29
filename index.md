@@ -1,4 +1,4 @@
-# Một số tác dụng của trà hoa đậu biếc mang lại cho cơ thể
+# Một số tác dụng bất ngờ của trà hoa đậu biếc đối với sức khỏe
 Trà hoa đậu biếc được làm từ hoa đậu biếc, gây sốt trên khắp thế giới vì khi pha trà có màu sắc đẹp và thanh nhã. Trà hoa đậu biếc có hương vị thơm ngon, đồng thời lại mang đến nhiều tác dụng tốt đối với sức khỏe. Các tác dụng của trà hoa đậu biếc thường là giúp giảm căng thẳng, lo âu, giúp các vấn đề về giấc ngủ, giúp ngủ ngon và sâu hơn. Ngoài ra, còn rất nhiều tác dụng khác. Chúng ta hãy cùng tìm hiểu thêm trong bài viết dưới đây.
 
 ![Hoa đậu biếc](https://global-uploads.webflow.com/5deb1e0bcd1730303a919a1b/5e74441440f35f44ce52c3e6_hoa-dau-biec-kho.jpg)
