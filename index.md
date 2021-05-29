@@ -1,4 +1,4 @@
-#Sâm cau đen có tác dụng gì#
+#Sâm cau đen có tác dụng gì
 Sâm cau đen (tiên mao) vị thuốc nam điều trị liệt dương nổi tiếng được dân gian ca ngợi, sử dụng cách đây hàng trăm năm. Các cuốn sách cổ đều có ghi chép về công dụng của tiên mao. Tuy nhiên rất ít người biết và sử dụng. Ở bài viết này xin giới thiệu tới quý vị và các bạn về công dụng, cách dùng sâm cau đen.
 
 Sâm cau đen - tiên mao còn có tên gọi khác là tiên mao, ngải cau, sâm cau rừng…. Đây là một trong số rất ít những vị thuốc nam có công dụng bồi bổ sức khỏe, tăng cường sinh lý, điều trị liệt dương được ghi nhận trong cuốn sách nổi tiếng toàn thế giới – Cuốn “Những cây thuốc, vị thuốc Việt Nam” của giáo sư, Tiến sỹ Đỗ Tất Lợi.
@@ -7,15 +7,15 @@ Sâm cau đen - tiên mao còn có tên gọi khác là tiên mao, ngải cau, s
 Tên khoa học
 Curculigo orchioides Gaertn. Thuộc họ thủy tiên
 
-##Khu vực phân bố##
+##Khu vực phân bố
 Cây sâm cau đen mọc hoang hóa ở các vùng đồi núi nước ta. Hiện mới phát hiện sâm cau đen mọc ở một số tỉnh Tây Bắc như: Hòa Bình, Sơn La, Ninh Bình, Yên Bái, Lào Cai, Tuyên Quang.
 
 Chưa thấy cây mọc ở đồng bằng, hiện nay cây sâm cau vẫn chưa được trồng đại trà. Toàn bộ nguồn nguyên liệu đều dựa vào việc khai thái ngoài thiên nhiên.
 
-##Bộ phận dùng##
+##Bộ phận dùng
 Củ sâm cau chính là bộ phận được dùng làm thuốc.
 
-##Cách chế biến và thu hái##
+##Cách chế biến và thu hái
 Là loài cây cỏ mọc lâu năm, người dân thu hái củ sâm cau quanh năm. Nhiều nhất vào thời gian từ tháng 9 đến tháng 12 hàng năm, đây là thời điểm củ sâm cau có chất lượng tốt nhất.
 
 Thành phần hóa học
@@ -25,7 +25,7 @@ Trong củ có rất nhiều hoạt chất quý như: Hoạt chất Saponin, phy
 Tính vị
 Sâm cau đen có vị hơi cay, tính ấm. Vào 2 kinh tỳ, thận.
 
-##Công dụng điều trị bệnh của sâm cau đen##
+##Công dụng điều trị bệnh của sâm cau đen
 Theo y học cổ truyền sâm cau đen có một số tác dụng chính sau:
 
 Điều trị liệt dương
@@ -42,7 +42,7 @@ Mạnh gân xương
 
 Điều trị thần kinh suy nhược
 
-##Đối tượng sử dụng##
+##Đối tượng sử dụng
 Người mắc chứng thận dương hư (Lưng đau, gối mỏi, lưng bị lạnh, suy nhược cơ thể, gầy xanh xao)
 
 Nam giới bị suy giảm chức năng sinh lý
@@ -53,7 +53,7 @@ Nam giới tuổi trung niên, suy giảm nội tiết tố, mãn dục nam
 
 Người bình thường không bệnh tật gì nên sử dụng sâm cau để tăng cường sức khỏe, tăng khả năng yêu, tăng bản lĩnh trước chị em
 
-##Cách dùng, liều dùng##
+##Cách dùng, liều dùng
 Sâm cau đen có thể dùng theo 2 cách là ngâm rượu hoặc sắc nước uống. Cách dùng cụ thể như sau:
 
 Cách ngâm rượu sâm cau đen tươi:
